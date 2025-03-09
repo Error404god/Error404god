@@ -1,11 +1,11 @@
-- 👋 Hi, I’m @Error404god
-- 👀 I’m interested in GAMING
-- 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on idk
+- 👋 Hi, I’m @Error404
+- 👀 I’m interested in ...idk
+- 🌱 destroy them trees , burn them down
+- 💞️ in love with my gojo bodypillow 
 - 📫 How to reach me ?
-ur sus
+discord you dumbas-
 
-<!---
-Error404god/Error404god is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!--- 
+fish is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
