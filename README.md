@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Error404
+- 👋 I'm a suicidal croissant
 - 👀 I’m interested in ...idk
 - 🌱 destroy them trees , burn them down
 - 💞️ in love with my gojo bodypillow 
